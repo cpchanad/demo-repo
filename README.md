@@ -8,4 +8,4 @@ Watch this video.
 
 ## add a new folder to hot fix this.
 
-1. I am so awesome.
+1. You am so awesome.
